@@ -1,2 +1,2 @@
 # .github
-Sponsor &amp; Appreciation helps in individual growth. who doesn't  like to grow? Isn't it?
+Sponsor &amp; Experienced Full-Stack Developer seeking your support on GitHub. Elevate tech together! 🚀💻 #Sponsorship #FullStackDeveloper
