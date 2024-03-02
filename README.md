@@ -1,2 +1,2 @@
 # .github
-Sponsor &amp; Experienced Full-Stack Developer seeking your support on GitHub. Elevate tech together! 🚀💻 #Sponsorship #FullStackDeveloper
+Experienced Full-Stack Developer seeking your support on GitHub. Elevate tech together! 🚀💻 #Sponsorship #FullStackDeveloper
